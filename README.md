@@ -1,0 +1,2 @@
+# mbass
+Saya lagi berjuang. 
